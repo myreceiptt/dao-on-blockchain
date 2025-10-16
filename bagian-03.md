@@ -97,3 +97,7 @@ Semua bisa diatur sejak awal, atau diperbarui lewat proposal dan persetujuan ber
 DAO bukan tanpa batas — tapi yang pasti, ia membuka **ruang baru untuk keadilan organisasi**. Bukan dengan menghapus kepemimpinan, tapi dengan **meredistribusi pengaruh dan kontrol**.
 
 ***
+
+P.S. Read this document freely for information and guidance. Do not redistribute or restate—no quotes, summaries, paraphrases, or derivatives—without prior written permission from [**Prof. NOTA**](https://nota.endhonesa.com/). Sharing the link is allowed. So, share the link, not the text. Do not discuss or re-tell the contents in any form—written, spoken, or recorded—without prior written permission.
+
+***
