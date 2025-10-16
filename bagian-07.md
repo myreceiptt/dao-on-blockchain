@@ -90,3 +90,7 @@ N.B. Semua materi edukasi ini selalu diperbarui dan telah digunakan dan disampai
 N.B. 2. Jika kamu merasa materi ini bermanfaat, **bagikan kepada temanmu**, komunitasmu, atau mereka yang sedang mencari cara baru untuk berorganisasi. Karena DAO bukan hanya untuk kita yang membaca ini — tapi untuk mereka yang belum tahu bahwa _organisasi juga bisa dibebaskan_.
 
 ***
+
+P.S. Read this document freely for information and guidance. Do not redistribute or restate—no quotes, summaries, paraphrases, or derivatives—without prior written permission from [**Prof. NOTA**](https://nota.endhonesa.com/). Sharing the link is allowed. So, share the link, not the text. Do not discuss or re-tell the contents in any form—written, spoken, or recorded—without prior written permission.
+
+***
