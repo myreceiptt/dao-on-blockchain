@@ -114,3 +114,7 @@ DAO bukan untuk semua orang. Tapi ia membuka kemungkinan bagi **orang-orang yang
 Dan dalam semangat itulah, masa depan DAO bukan hanya tentang teknologi. Ia adalah tentang **harapan yang diprogram dalam sistem**.
 
 ***
+
+P.S. Read this document freely for information and guidance. Do not redistribute or restate—no quotes, summaries, paraphrases, or derivatives—without prior written permission from [**Prof. NOTA**](https://nota.endhonesa.com/). Sharing the link is allowed. So, share the link, not the text. Do not discuss or re-tell the contents in any form—written, spoken, or recorded—without prior written permission.
+
+***
